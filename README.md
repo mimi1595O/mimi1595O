@@ -1,16 +1,38 @@
-## Hi there 👋
+## Hi :3
+**Mimi is my name  ٩(◕‿◕)۶** \
+was/were because I am constantly dying inside. \
+Want to be a cute anime girl but born as a stupid guy 😭 \
+I hullucinate more frequently than an LLM, a cutie with delusional beautiful princess disorder. 💔 \
+Pwease don't ask me anything technical because I don't even know what I am. 🥀 \
 
-<!--
-**mimi1595O/mimi1595O** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Fandom
+- Project Sekai 🎵
+- Vocaloid 🎤
+- Serial Experiments Lain 🖥️
+- Haibane Renmei 😇
+- Evangelion (NGE+Rebuild) 🤖
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# Hobby
+- Drawing
+- Cosplay Occasionally
+
+# More Fun facts
+- MizuEna ship 🎀🎨
+- Lain wannabe 🖱️
+- unemployed 🔻
+- Linux Thinkpad 🥇
+- No, I don't play boblox
+- very inactive
+- eeppy princess
+
+
+> [!IMPORTANT]
+>  NO I do not have programming knowlwedge 
+>  because I'm a Brainless kitten -w-
+
+
+> [!CAUTION]
+> This user is a delulu 🧠🔻
+
+
